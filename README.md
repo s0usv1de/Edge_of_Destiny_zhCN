@@ -8,7 +8,9 @@
 
 
 作者：J·罗伯特·金
+
 译者：nctuboy，a12232121
+
 译名修改：司徒乘风，莫菲尔Mouvel（大吧和小吧）
 
 贴吧链接：https://tieba.baidu.com/p/3121993972?see_lz=1&pn=1
